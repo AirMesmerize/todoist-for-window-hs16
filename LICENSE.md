@@ -1,4 +1,4 @@
-
+Enhance Todoist for Windows with instant Todoist for Windows Addon | notifications + checklists, the #1 addon. Includes notifications and checklists for a smoother and more
 
 
 
